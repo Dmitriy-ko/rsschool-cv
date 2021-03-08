@@ -20,4 +20,4 @@ I want to grow professionally in this area.
 2007-2012 Belarusian State University of Informatics and Radioelectronics
 
 ### Languages
-English - A2
+English level - A2
